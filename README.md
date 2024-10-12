@@ -12,7 +12,9 @@
     - I'm bit of a introvert, but I do interact with others if I see someone who peaks my interests :D Ima trying to social more and make alot of friends. before I leave pt for good after I start working as a therapist :333 (W2I PLS I STUDY ALOT)
 ![](https://64.media.tumblr.com/a03967cefe1ee1ee7642fed7ee3543d3/741b4bdb5ff96261-28/s2048x3072/ca98fb701c92d0ffac8cd7f05a49cdd79daa5a8e.gifv)
 
-   - I'm ducking crazy ![](https://64.media.tumblr.com/36447d7708c115eb72c0703a2f064d9f/c151cbadcef22eab-10/s250x400/68b53e28c3dba07d4dd0f4b1fa7bea7a305a6625.gifv)
+   - I'm a Agejo gyaru! and going live to the fullest, I do make my own skins very weird so sorry if you hate it not my problem >z< sadly I wouldn't be able to be one after working tho! but a girly shine and show other the cute ways to be yourself! (gyaru haters go away thehe!) 
+   -
+   - ![](https://64.media.tumblr.com/36447d7708c115eb72c0703a2f064d9f/c151cbadcef22eab-10/s250x400/68b53e28c3dba07d4dd0f4b1fa7bea7a305a6625.gifv)
 ![](https://64.media.tumblr.com/a496b77b4ac229bbba7df9f0bb7c02f1/108877a9712465de-14/s400x600/7e30d7596d90919b2b1779a5cb9d0a3b9c214daa.pnj)
  blinks I saw over the years
  ***
