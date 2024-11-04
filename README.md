@@ -17,8 +17,6 @@
    - I'm a Agejo and hime gyaru! and going live to the fullest, I do make my own skins very weird so sorry if you hate it not my problem >z< sadly I wouldn't be able to be one after working tho! but a girly shine and show other the cute ways to be yourself! (gyaru haters go away thehe!)
 
 ![](https://64.media.tumblr.com/6847d828e0610397fe0f611fea6dab43/dc6648262ddac9c0-ca/s400x600/f25123e2185cc63eda71dcdc356e5790a978ecb2.pnj)
-   - i'm offically will be staying next to a tree by the docks, i'm normally afk or asleep <3 please cuddle !! :3
-     ![](https://64.media.tumblr.com/461e72fa5be44f2fc2765c885db6c95a/c0a24eabc073ee15-2e/s2048x3072/d738fc56a2b6b9a2e00822f30f7744cf2842d0b6.pnj)
      
 
 
