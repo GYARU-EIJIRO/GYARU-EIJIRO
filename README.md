@@ -2,6 +2,8 @@
 # GYARU-ABOUTME >Z<
  - hello this is just a bit about more me the host of this system!! (just major stuff ig..) ![](https://64.media.tumblr.com/332f83811731c6bdcc49d6da665688f8/dc6648262ddac9c0-92/s100x200/69400c60b7057c4a00dacd8722e58033a3a2eddb.gifv) [c+h notes](https://rentry.co/CplusH)
  - btw, SIDE NOTE.. STOP DRAWING D1CK$ ON MY SP PLEASE WTF IS WRONG WITH YOU CRAZY HEADS 😭😭
+
+ - GUESS WHOS ARE MY 4 IDOLS ARE ! hint: they're stay mainly in genshin area (one of them sign my ata too!)
  - ❥-————————❥-————————❥
 
     - I'm studying to be a Cognitive-behavioral therapist or (CBT) and my bachelor's degree !! and ofc, you can come up to me and vent (ask first) I'll learn and help people through tough times as I need experience to be one (I wanna help others in need🙏) I do work a part-time job in the meantime^^
