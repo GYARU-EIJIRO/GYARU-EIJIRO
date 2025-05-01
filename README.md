@@ -20,9 +20,8 @@
    - I'm a Agejo and hime gyaru! and going live to the fullest, I do make my own skins very weird so sorry if you hate it not my problem >z< sadly I wouldn't be able to be one after working tho! but a girly shine and show other the cute ways to be yourself! (gyaru haters go away thehe!)
 
 ![](https://64.media.tumblr.com/6847d828e0610397fe0f611fea6dab43/dc6648262ddac9c0-ca/s400x600/f25123e2185cc63eda71dcdc356e5790a978ecb2.pnj)
-     
 
-
+   - I was recently In accident, from driving nothing to serious, but it gave me [Thoracic Back Pain](https://comprehensivespine.weillcornell.org/conditions-we-treat/back-pain/types-of-back-pain/) which causes me quite alot pain. but dw!!! I had this for a long time, just came back when I was older ig lol 😞 so you might see my name or status 'back pains' or something!  it just heads up really <3
    ![](https://64.media.tumblr.com/a496b77b4ac229bbba7df9f0bb7c02f1/108877a9712465de-14/s400x600/7e30d7596d90919b2b1779a5cb9d0a3b9c214daa.pnj)
 
    
