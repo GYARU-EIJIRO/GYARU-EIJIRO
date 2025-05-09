@@ -4,6 +4,8 @@
  - btw, SIDE NOTE.. STOP DRAWING D1CK$ ON MY SP PLEASE WTF IS WRONG WITH YOU CRAZY HEADS 😭😭
 
  - GUESS WHOS ARE MY 4 IDOLS ARE ! hint: they're stay mainly in genshin area (one of them sign my ata too!)
+
+ - I LOVE GIFTING PONIES SO DO EXPECT ME TO SEND A GIFT RANDOMLY IN DMS :3
  - ❥-————————❥-————————❥
 
     - I'm studying to be a Cognitive-behavioral therapist or (CBT) and my bachelor's degree !! and ofc, you can come up to me and vent (ask first) I'll learn and help people through tough times as I need experience to be one (I wanna help others in need🙏) I do work a part-time job in the meantime^^
